@@ -13,14 +13,15 @@
 
 ## How to Get 60% Off with Jenni AI Promo Code 2025  
 Follow these steps to claim your discount:  
-1. Visit the [Jenni AI website](https://example.com/promo-code).  
+1. Visit the [Jenni AI website](https://jenni.ai/?via=60Discount).  
 2. Choose a subscription plan (Basic, Unlimited, or Team).  
 3. **Apply the promo code `JENNI60` at checkout**.  
 4. Enjoy **60% off** your subscription!  
 
-👉 **[Click here to activate the 60% discount](https://example.com/promo-code)**  
+👉 **[Click here to activate the 60% discount](https://jenni.ai/?via=60Discount))**  
 
----
+👉 **[https://jenni.ai/?via=60Discount](https://jenni.ai/?via=60Discount))**  
+--
 
 ## Benefits of Using the Jenni AI Promo Code  
 - **Save 60%** on any subscription plan.  
@@ -63,7 +64,7 @@ Follow these steps to claim your discount:
 ## Conclusion  
 Don’t miss the **Jenni AI 2025 promo code**! With **60% off**, you gain access to a powerful writing assistant that boosts productivity and polish. Whether you’re a student, freelancer, or professional, this deal is too good to pass up.  
 
-👉 **[Claim Your 60% Discount Now](https://example.com/promo-code)**  
+👉 **[Claim Your 60% Discount Now](https://jenni.ai/?via=60Discount)**  
 
 ---
 
